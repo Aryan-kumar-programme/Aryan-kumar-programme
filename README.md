@@ -8,7 +8,7 @@
 
 <br/>
 
-**Webstack Developer Intern @ Treton Groups & Ventures Pvt Ltd**
+
 
 📍 Vadodara, Gujarat, India
 
